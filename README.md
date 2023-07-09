@@ -1,1 +1,1 @@
-Hello, Hex! yo
+No code No pain
